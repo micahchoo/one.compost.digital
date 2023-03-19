@@ -33,9 +33,9 @@ https://blog.janastu.org/
 
 ### ϻ𝔦𝐂αн
 ```
-https://khattamicah.online/
-https://medium.com/micah-alex/
-https://thelivinglabs.net/
+https://khattamicah.xyz/
+https://designbeku.in/
+https://linktr.ee/llnaf
 ```
 
 ### ⓐⓝⓝⓘⓔ
